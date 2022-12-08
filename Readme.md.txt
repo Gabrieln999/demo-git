@@ -1,1 +1,1 @@
-Gabriel Nadal grupa-V1 
+Gabriel Nadal, Grupa-V2 
